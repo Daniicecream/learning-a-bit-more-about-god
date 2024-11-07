@@ -1,5 +1,5 @@
 ---
-title: "La trinidad de Dios"
+title: _"La trinidad de Dios"_ (Juan 1:1-13)
 date: 2024-02-25
 ---
 > 1 En el principio existía el Verbo, y el Verbo estaba con Dios, y el Verbo era Dios. 2 Él
