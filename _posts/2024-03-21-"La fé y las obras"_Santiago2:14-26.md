@@ -22,6 +22,7 @@ date: 2024-03-21
 > cuerpo sin el espíritu está muerto, así también la fe sin las obras está muerta.
 > 
 > *— Santiago 2:14-26*
+
 ---
 <br>
 En este pasaje santiago habla sobre la fe salvífica. Sabemos que la palabra de Dios es perfecta, no se contradice.
