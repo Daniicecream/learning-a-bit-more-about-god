@@ -1,5 +1,5 @@
 ---
-title: "La fé y las obras" (Santiago 2:14-26)
+title: "La fé y las obras (Santiago 2:14-26)"
 date: 2024-03-21
 ---
 > **La fe y las obras**
